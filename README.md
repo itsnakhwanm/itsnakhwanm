@@ -4,7 +4,7 @@ Thank you for visiting the GitHub repository of Nakhwan Maulana!
 
 Hi! My name is Septian Nakhwan Maulana (you don't need to call me the first name). You can call me Nakhwan. Nice to meet you.
 
-My motto is "I just would like to convey everything I have". My goal is to share something to you, even evrything. I love playing music and technology.
+My motto is "I just would like to convey everything I have". My goal is to share something to you, even evrything. I love music and technology.
 
 ## Social Media
 You can follow my account or subscribe to my channel:
@@ -17,6 +17,6 @@ Instagram: https://www.instagram.com/nakhwan.maulana/
 
 TikTok (rarely): https://www.tiktok.com/@nakhwan.maulana/
 
-## Notes:
+## Notes
 
 It may update if there's a new information.
