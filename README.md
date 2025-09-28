@@ -8,7 +8,11 @@ My motto is "I just would like to convey everything I have". My goal is to share
 
 ## Social Media
 You can follow my account or subscribe to my channel:
+
 YouTube: https://www.youtube.com/@ItsNakhwanMaulana/
+
 Second YouTube Channel (Nakhwan Maulana Global and Others): https://www.youtube.com/@NakhwanMaulanaOthers/
+
 Instagram: https://www.instagram.com/nakhwan.maulana/
+
 TikTok (rarely): https://www.tiktok.com/@nakhwan.maulana/
