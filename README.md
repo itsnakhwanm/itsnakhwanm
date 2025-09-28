@@ -16,3 +16,7 @@ Second YouTube Channel (Nakhwan Maulana Global and Others): https://www.youtube.
 Instagram: https://www.instagram.com/nakhwan.maulana/
 
 TikTok (rarely): https://www.tiktok.com/@nakhwan.maulana/
+
+## Notes:
+
+It may update if there's a new information.
