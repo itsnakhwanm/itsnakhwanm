@@ -11,7 +11,7 @@ You can follow my account or subscribe to my channel:
 
 YouTube: https://www.youtube.com/@ItsNakhwanMaulana/
 
-Second YouTube Channel (Nakhwan Maulana Global and Others): https://www.youtube.com/@NakhwanMaulanaOthers/
+Second YouTube Channel (Nakhwan Maulana Others): https://www.youtube.com/@NakhwanMaulanaOthers/
 
 Instagram: https://www.instagram.com/nakhwan.maulana/
 
